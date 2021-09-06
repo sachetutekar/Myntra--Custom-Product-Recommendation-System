@@ -10,8 +10,8 @@ I got to have hands on experience on:
 
 <b>Please drop a message on my social handles if you have any queries or any suggestions. 
 </b>.
-<a href="https://sachetutekar.wixsite.com/website">SACHET_UTEKAR</a>
-Visit: SACHET_UTEKAR or follow SACHET UTEKAR on: 
+Visit: SACHET_UTEKAR or follow/connect SACHET UTEKAR on: 
+<a href="https://sachetutekar.wixsite.com/website">SACHET_UTEKAR</a>  
 <li><a href=
 "https://www.linkedin.com/in/sachet-utekar-b23728205/">LinkedIn</a>
 <li><a href=
